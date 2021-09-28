@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1- League of Legends
+2- Kdramas
+3- School
